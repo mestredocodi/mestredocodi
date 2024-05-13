@@ -12,4 +12,4 @@ Meu nome é Yasmin Silva Do Prado.
   
   pradoyasmin33@gmail.com
 
-!{}(https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQlyq9d0C11ORWdcWmN2hZhWf0AKFcNdYcyQA&usqp=CAU)
+
